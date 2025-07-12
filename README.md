@@ -6,7 +6,9 @@ Data analyst with a passion for transforming complex datasets into actionable in
 Background
 
 Data Analytics Graduate - LSE Level 7 course completed with distinction
+
 Healthcare Professional - Lead Dental Nurse with team leadership experience
+
 Creative Designer - 6+ years crafting visual narratives
 
 
