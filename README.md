@@ -1,5 +1,7 @@
 About Me
+
 Data analyst with a passion for transforming complex datasets into actionable insights. Currently bridging healthcare and analytics, bringing a unique perspective from both clinical practice and data science.
+
 
 Background
 
